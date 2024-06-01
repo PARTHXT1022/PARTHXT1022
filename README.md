@@ -7,8 +7,6 @@
 
 - 📫 How to reach me **parthtilay@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eOkQKfn9T12V6xhLCM8_qKtk3MU-U9bQ/view?usp=drive_link](https://drive.google.com/file/d/1eOkQKfn9T12V6xhLCM8_qKtk3MU-U9bQ/view?usp=drive_link)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
